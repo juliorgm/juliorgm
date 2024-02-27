@@ -6,6 +6,5 @@
 * likedin: @juliorgm
 * instagran: @juliorgm1
 
-EGBJQWPDMKGEFIMEZBTCQKU3XQS6FQ6MJPCTIAVZZD4WDDDU4QJQAAAA
 
 

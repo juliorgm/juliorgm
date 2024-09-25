@@ -5,7 +5,6 @@
 * email: juliorgm@gmail.com
 * likedin: @juliorgm
 * instagran: @juliorgm1
-VBTF63SCA4ZZA4LHYM6RT2BE6OQSC3IOZLN3MI7CVBYW5ZI22WQQAAAA
 
 
 
